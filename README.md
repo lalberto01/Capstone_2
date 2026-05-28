@@ -23,7 +23,11 @@ I will compare sales performance, customer activity, product category trends, an
 6. Where should marketing focus next quarter?
 
 ## Video Presentation
-https://yearuptemp-my.sharepoint.com/:f:/g/personal/lalberto_my_yearupunited_org/IgAa7tTPCrRZQpnZmj32rAexAdUc_h4_997EPWBBexVMEyU?tdid=009737ce-30e5-40b7-8c56-6740f33e3130
+https://vimeo.com/1196495627?share=copy&fl=sv&fe=ci
+
+
+
+
 
 
 
